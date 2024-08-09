@@ -1,4 +1,4 @@
-## VInu KALNA  😎
+## VINU KALNA  😎
 
 ## Profile
 
